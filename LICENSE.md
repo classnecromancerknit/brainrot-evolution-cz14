@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for brainrot evolution is the best brainrot evolution Script, featuring private server access and no clip. Safe and powerful for all
 
 
 
